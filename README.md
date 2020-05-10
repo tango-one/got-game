@@ -12,7 +12,7 @@ Just click on index and start playing. Object of the game is to reach squar 30..
 
 I never did watch this tv series maybe I should have done that since it looks intresting.
 
-Love to get feedback if you who have downloaded this is enjoying this.
+Love to get feedback if you who have downloaded this and is enjoying this.
 
 
 
